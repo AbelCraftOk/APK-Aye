@@ -1,3 +1,0 @@
-# APK-Aye
-
-Hola gente...
